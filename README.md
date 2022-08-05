@@ -1,1 +1,0 @@
-HI All Why am i here , just to suffer , every night , my legs, my dreams, my eyes slowly fading away into the abyss,[[;}]]
